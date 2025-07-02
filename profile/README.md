@@ -34,7 +34,7 @@ The AI Agency Launchpad is an all-in-one system aimed at helping individuals sta
 
 The AI Agency Launchpad offers a one-time purchase option priced at \$500. This investment grants you lifetime access to all the resources, community support, and tools mentioned above. Considering the comprehensive nature of the program and the inclusion of premium tools like GoHighLevel, this pricing is competitive and offers substantial value for aspiring agency owners.
 
-[Join The AI Agency Launchpad Now to Unlock Lifetime Access](https://kelexbawz.com/the-ai-agency-launchpad)
+[Join The AI Agency Launchpad Now to Unlock Lifetime Access](https://whop.com/the-ai-agency-launchpad?a=kelechienwere1234)
 
 ---
 
@@ -62,7 +62,7 @@ The program is tailored for:
 
 * **Ongoing Support:** With weekly calls and 24/7 assistance, you're never alone in your journey.
 
-[Join The AI Agency Launchpad Now to Elevate Your Agency Game](https://kelexbawz.com/the-ai-agency-launchpad)
+[Join The AI Agency Launchpad Now to Elevate Your Agency Game](https://whop.com/the-ai-agency-launchpad?a=kelechienwere1234)
 
 ---
 
@@ -86,7 +86,7 @@ The AI Agency Launchpad is spearheaded by Blaise Gulaj, who joined the Whop plat
 
 In the burgeoning field of AI agency development, several programs vie for attention. However, The AI Agency Launchpad distinguishes itself through its comprehensive approach, combining education, tools, and community support. While other programs might focus solely on theoretical knowledge or tool access, this launchpad offers a holistic solution for aspiring agency owners.
 
-[Join The AI Agency Launchpad Now to Stay Ahead in the AI Industry](https://kelexbawz.com/the-ai-agency-launchpad)
+[Join The AI Agency Launchpad Now to Stay Ahead in the AI Industry](https://whop.com/the-ai-agency-launchpad?a=kelechienwere1234)
 
 ---
 
@@ -100,4 +100,4 @@ As of now, there are no user reviews available on the Whop platform for The AI A
 
 The AI Agency Launchpad offers a robust framework for individuals aiming to establish and grow their own AI agencies. With its comprehensive resources, supportive community, and inclusion of essential tools, it presents a valuable opportunity for aspiring entrepreneurs. While the upfront investment and self-driven nature of the program might pose challenges for some, the potential rewards and structured guidance make it a worthy consideration.
 
-[Join The AI Agency Launchpad Now to Transform Your Entrepreneurial Vision into Reality](https://kelexbawz.com/the-ai-agency-launchpad)
+[Join The AI Agency Launchpad Now to Transform Your Entrepreneurial Vision into Reality](https://whop.com/the-ai-agency-launchpad?a=kelechienwere1234)
